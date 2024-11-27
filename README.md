@@ -1,1 +1,1 @@
-# Meu-reposit-rio-
+Meu nome é Letícia Santana De Oliveira, Tenho 16 anos, minha comida preferida é Lasanha, strogonoff, bk e mc. Amo ir na praia e ver o ceu. Eu tenho 2 irmãos, Enzo e Josué, amo muito eles, Namoro, amo muito minha familia e amigas e meu namorado. Futuramente quero fazer uma faculdade, porem ainda tenho em mente, enfermagem e fisioterapeuta e estou pensando qual fazer.
